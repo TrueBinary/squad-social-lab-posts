@@ -46,3 +46,51 @@ Quando conteúdo e venda andam juntos, o resultado aparece.
 Você compraria numa live? Comenta aqui 👇
 
 #Shorts #LiveCommerce #LiveShopping #Creators #UGC
+
+## 2026-11-04 12:00 (America/Sao_Paulo) — Squad Creators Club: expectativas
+
+Vídeo: [`2026-11-04-creators-club-expectativas.mp4`](2026-11-04-creators-club-expectativas.mp4) (vertical 720×1280, 1min19s)
+
+### Instagram (original)
+
+Antes mesmo do nosso primeiro encontro começar, a gente quis saber: o que os creators esperavam do Squad Creators Club? 👀
+
+Novas conexões, oportunidades, aprendizado, campanhas, marcas… cada creator chegou com suas próprias expectativas e muita vontade de fazer acontecer.
+
+Foi assim que começamos o primeiro encontro do Squad Creators Club: ouvindo quem faz parte dessa comunidade e entendendo onde cada um quer chegar. ❤️
+
+Agora que o primeiro encontro aconteceu, queremos saber:
+
+Creators, as expectativas foram atendidas? E o que vocês querem ver nos próximos encontros? 👇
+
+Porque esse Club está só começando — e queremos construir os próximos capítulos junto com vocês. 🚀
+
+### LinkedIn
+
+Comunidade de creators não se constrói só com briefing e entrega. Se constrói ouvindo.
+
+Antes do primeiro encontro do Squad Creators Club começar, fizemos uma pergunta simples para cada creator: o que você espera daqui?
+
+As respostas foram de novas conexões e aprendizado a campanhas e parcerias com marcas. Expectativas diferentes, mas com um ponto em comum: vontade de crescer e fazer acontecer.
+
+Esse foi o ponto de partida do Club: entender onde cada creator quer chegar para construir o caminho junto.
+
+O primeiro encontro aconteceu, e agora a pergunta volta para a comunidade: as expectativas foram atendidas? O que vocês querem ver nos próximos encontros?
+
+Esse é só o primeiro capítulo. 🚀
+
+#CreatorEconomy #Comunidade #Creators #MarketingDeInfluencia #UGC
+
+### YouTube (Shorts)
+
+**Título:** O que os creators esperam do Squad Creators Club? 👀
+
+**Descrição:**
+
+Antes do primeiro encontro do Squad Creators Club, perguntamos para os creators: o que vocês esperam daqui? 👀
+
+Conexões, aprendizado, campanhas, marcas… cada um chegou com seus próprios objetivos ❤️
+
+Creators, as expectativas foram atendidas? Conta nos comentários o que vocês querem ver nos próximos encontros 👇
+
+#Shorts #SquadCreatorsClub #Creators #CreatorEconomy #UGC
