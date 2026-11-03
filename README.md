@@ -94,3 +94,43 @@ Conexões, aprendizado, campanhas, marcas… cada um chegou com seus próprios o
 Creators, as expectativas foram atendidas? Conta nos comentários o que vocês querem ver nos próximos encontros 👇
 
 #Shorts #SquadCreatorsClub #Creators #CreatorEconomy #UGC
+
+## 2026-11-04 18:00 (America/Sao_Paulo) — Entrevista Fernanda Faveron (Live Shop)
+
+Vídeo: [`2026-11-04-1800.mp4`](2026-11-04-1800.mp4) (vertical 720×1280, 48s)
+
+### Instagram (original)
+
+A Live Shop foi um dos grandes temas do SQUAD CREATORS CLUB, e para falar sobre esse universo, tivemos a presença de quem entende do assunto: Fernanda Faveron. 💜
+
+Especialista em Live Shop, a Fernanda compartilhou conhecimento, estratégias e insights importantes para quem quer entender melhor esse formato e explorar todo o potencial das vendas ao vivo.
+
+Dá o play e confira a entrevista com a Fernanda Faveron! @fefaveron
+
+#squadcreatorsclub #squadlab #fernandafaveron #liveshop #liveshopping
+
+### LinkedIn
+
+Vendas ao vivo exigem mais do que ligar a câmera e mostrar o produto.
+
+No Squad Creators Club, um dos grandes temas foi Live Shop, e trouxemos Fernanda Faveron, especialista no assunto, para compartilhar com os creators o que funciona na prática.
+
+Na conversa, a Fernanda falou sobre estratégias, formatos e os pontos que fazem uma live deixar de ser só conteúdo e virar venda de verdade.
+
+Para marcas e creators que querem explorar o potencial do live commerce, vale o play na entrevista. 💜
+
+#LiveShop #LiveCommerce #CreatorEconomy #SquadCreatorsClub #MarketingDigital
+
+### YouTube (Shorts)
+
+**Título:** Live Shop na prática com Fernanda Faveron 💜 #LiveShop
+
+**Descrição:**
+
+Quer vender mais nas lives? 🔴
+
+No Squad Creators Club, a especialista em Live Shop Fernanda Faveron contou estratégias e dicas para quem quer aproveitar todo o potencial das vendas ao vivo.
+
+Assiste até o final e conta nos comentários: você já fez ou comprou numa live? 👇
+
+#Shorts #LiveShop #LiveShopping #SquadCreatorsClub #FernandaFaveron
