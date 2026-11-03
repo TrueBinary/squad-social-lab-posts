@@ -134,3 +134,72 @@ No Squad Creators Club, a especialista em Live Shop Fernanda Faveron contou estr
 Assiste até o final e conta nos comentários: você já fez ou comprou numa live? 👇
 
 #Shorts #LiveShop #LiveShopping #SquadCreatorsClub #FernandaFaveron
+
+## 2026-11-05 09:00 (America/Sao_Paulo) — Squad Creators Club Edição #002
+
+Vídeo: [`2026-11-05-creators-club-edicao-002.mp4`](2026-11-05-creators-club-edicao-002.mp4) (vertical 720×1280, 48s)
+
+### Instagram (original)
+
+Depois do sucesso da Edição #001, o SQUAD CREATORS CLUB está de volta! 👀✨
+
+Dia 23, a gente se encontra para mais uma edição desse ecossistema exclusivo que conecta creators, marcas, conhecimento e oportunidades reais de monetização. 💜
+
+E se você acompanhou a primeira edição e ficou com vontade de estar lá… essa pode ser a sua vez. 👀
+
+Quem vive o Club pode encontrar:
+
+✨ Marcas, campanhas e novas oportunidades
+🎁 Ativações, experiências, mimos e recebidos
+🎙️ Live Commerce, Podcast e criação de conteúdo
+🎓 Palestras, capacitação e muito aprendizado
+💰 Monetização, afiliados e novos formatos de trabalho
+🥂 Happy Hour para fechar o dia com muita conexão e networking!
+
+Agora chegou a vez da...
+
+💜 SQUAD CREATORS CLUB EDIÇÃO #002
+
+📅 Dia 23
+
+Quer fazer parte?
+💬 Comente “EU VOU” que a gente manda o link no direct!
+
+### LinkedIn
+
+O Squad Creators Club está de volta para a Edição #002. 💜
+
+Depois de uma primeira edição que reuniu creators, marcas e muita troca, voltamos no dia 23 com mais um encontro desse ecossistema que conecta creators, marcas, conhecimento e oportunidades reais de monetização.
+
+O que acontece no Club:
+
+✨ Marcas, campanhas e novas oportunidades
+🎙️ Live Commerce, podcast e criação de conteúdo
+🎓 Palestras e capacitação
+💰 Monetização, afiliados e novos formatos de trabalho
+🎁 Ativações e experiências com marcas
+🥂 Happy hour para fechar o dia com networking
+
+Se você é creator e quer transformar conteúdo em oportunidade de negócio, ou é uma marca que quer se aproximar de quem cria, essa edição é para você.
+
+📅 Dia 23
+
+Quer participar? Comente "EU VOU" que enviamos o link por mensagem.
+
+#SquadCreatorsClub #CreatorEconomy #MarketingDeInfluencia #LiveCommerce #Networking
+
+### YouTube (Shorts)
+
+**Título:** Squad Creators Club Edição #002 vem aí 👀💜
+
+**Descrição:**
+
+O Squad Creators Club está de volta! 👀✨ Dia 23 tem Edição #002.
+
+Marcas, campanhas, Live Commerce, podcast, palestras, monetização, recebidos e happy hour para fechar com muito networking 🥂
+
+Ficou com vontade de estar lá na primeira? Agora é a sua vez 💜
+
+💬 Comenta "EU VOU" aqui embaixo e chama a gente no Instagram @squadsociallab para receber o link!
+
+#Shorts #SquadCreatorsClub #Creators #LiveCommerce #CreatorEconomy
