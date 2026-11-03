@@ -203,3 +203,52 @@ Ficou com vontade de estar lá na primeira? Agora é a sua vez 💜
 💬 Comenta "EU VOU" aqui embaixo e chama a gente no Instagram @squadsociallab para receber o link!
 
 #Shorts #SquadCreatorsClub #Creators #LiveCommerce #CreatorEconomy
+
+## 2026-11-05 12:00 (America/Sao_Paulo) — Monster Energy no Squad Creators Club
+
+Vídeo: [`creators-club-monster-energy.mp4`](creators-club-monster-energy.mp4) (vertical 720×1280, 28s)
+
+### Instagram (original)
+
+A Monster Energy também marcou presença na 1ª edição do Squad Creators Club, fazendo parte de uma experiência pensada para aproximar creators, marcas e novas oportunidades.
+
+Porque o Club é sobre isso: criar conexões, gerar experiências e colocar grandes marcas cada vez mais perto de quem cria e influencia. 🚀
+
+Obrigada, Monster Energy, por fazer parte desse primeiro encontro!
+
+Quer viver a próxima edição com a gente? 👀
+As inscrições para a 2ª edição do Squad Creators Club estão abertas!
+
+👉 Inscreva-se pelo link da bio e venha fazer parte dessa comunidade. As vagas são limitadas e os participantes serão selecionados pela Squad.
+
+#SquadCreatorsClub #SquadSocialLab #MonsterEnergy #Creators #MarketingDeInfluencia
+
+### LinkedIn
+
+Marcas que querem se conectar com a creator economy precisam estar onde os creators estão.
+
+Na 1ª edição do Squad Creators Club, a Monster Energy fez parte de uma experiência pensada para aproximar creators, marcas e novas oportunidades de negócio.
+
+É esse o propósito do Club: criar conexões reais, gerar experiências e colocar grandes marcas cada vez mais perto de quem cria e influencia. 🚀
+
+Obrigada, Monster Energy, por fazer parte desse primeiro encontro.
+
+As inscrições para a 2ª edição estão abertas. As vagas são limitadas e os participantes são selecionados pela Squad. O link de inscrição está na bio do nosso Instagram, @squadsociallab.
+
+#SquadCreatorsClub #SquadSocialLab #MonsterEnergy #CreatorEconomy #MarketingDeInfluencia
+
+### YouTube (Shorts)
+
+**Título:** Monster Energy no Squad Creators Club ⚡🚀
+
+**Descrição:**
+
+A Monster Energy colou com a gente na 1ª edição do Squad Creators Club! ⚡
+
+Creators, marcas e experiências no mesmo lugar: é disso que o Club é feito 🚀 Valeu, Monster Energy!
+
+Quer estar na próxima? 👀 As inscrições para a 2ª edição estão abertas e as vagas são limitadas!
+
+👉 Link de inscrição na bio do nosso Instagram: @squadsociallab
+
+#Shorts #SquadCreatorsClub #MonsterEnergy #Creators #SquadSocialLab
