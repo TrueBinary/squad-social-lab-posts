@@ -252,3 +252,65 @@ Quer estar na próxima? 👀 As inscrições para a 2ª edição estão abertas 
 👉 Link de inscrição na bio do nosso Instagram: @squadsociallab
 
 #Shorts #SquadCreatorsClub #MonsterEnergy #Creators #SquadSocialLab
+
+## 2026-11-07 09:00 (America/Sao_Paulo) — Squad Creators Club #004 (Lethicia) — via mLabs
+
+Vídeo: [`2026-11-07-creators-club-004-lethicia.mov`](2026-11-07-creators-club-004-lethicia.mov) (vertical 1440×2560, 24s)
+
+### Original
+
+O Squad Creators Club #004 está chegando e queremos você com a gente!
+
+Um novo encontro para conectar creators, marcas e oportunidades. Prepare-se para viver experiências, aprender, fazer networking e conhecer novas possibilidades no universo da criação de conteúdo.
+
+Não fique de fora dessa edição!
+
+**Inscreva-se no Squad Creators Club #004 e dê o próximo passo na sua jornada como creator.**
+
+Acesse o link da bio e faça sua inscrição!
+
+#squadcreatorsclub #creators #ugc #influenciadoresdigitais #criacaodeconteudo
+
+### Instagram (Reels)
+
+O Squad Creators Club #004 está chegando e queremos você com a gente! 💜
+
+Um novo encontro para conectar creators, marcas e oportunidades: experiências, aprendizado, networking e novas possibilidades no universo da criação de conteúdo. ✨
+
+Não fique de fora dessa edição!
+
+👉 Inscreva-se no Squad Creators Club #004 pelo link da bio e dê o próximo passo na sua jornada como creator.
+
+#squadcreatorsclub #creators #ugc #influenciadoresdigitais #criacaodeconteudo
+
+### TikTok
+
+Creator, essa é pra você 👀 O Squad Creators Club #004 tá chegando!
+
+Marcas, oportunidades, networking e muito aprendizado no mesmo lugar 💜
+
+Inscrição no link da bio 👆 Não fica de fora!
+
+#squadcreatorsclub #creators #ugc #criadordeconteudo #fyp
+
+### YouTube (Shorts)
+
+**Título:** Squad Creators Club #004: inscrições abertas 💜
+
+**Descrição:**
+
+O Squad Creators Club #004 está chegando! 💜
+
+Um encontro para conectar creators, marcas e oportunidades, com experiências, aprendizado e networking.
+
+👉 Para se inscrever, acesse o link na bio do nosso Instagram: @squadsociallab
+
+#Shorts #SquadCreatorsClub #Creators #UGC #CriacaoDeConteudo
+
+### Pinterest (pasta "Seja Nosso Influencer")
+
+Squad Creators Club #004: encontro para creators e criadores de conteúdo que querem se conectar com marcas, fazer networking e encontrar novas oportunidades no universo de UGC e influência digital. 💜
+
+Inscrições pelo link na bio do nosso Instagram: @squadsociallab
+
+#squadcreatorsclub #creators #ugc #influenciadoresdigitais #criacaodeconteudo
